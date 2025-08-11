@@ -1,4 +1,4 @@
-## Aqui quem fala é a Star, seja bwem vindo!
+## Aqui quem fala é a Star, seja bem vindo!
 
 **Di0LustarOfc350/Di0LustarOfc350** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
