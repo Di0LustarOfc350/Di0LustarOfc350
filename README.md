@@ -7,6 +7,7 @@
 - 👯 Eu edito com companhia  `R,M`
 - 😴 Eu sou ótima quando não tô dormindo
 - 💬 Vivo no mundo da Lua
-- 📫 Você pode me encontrar nesse Email: 
+- 📫 Você pode me encontrar nesse Email: [pinto.diovana@escola.pr.gov.br]()
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+`#0969DA`
