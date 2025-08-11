@@ -5,9 +5,9 @@
 - 🤙 Eu sou a **Diovana**
 - 👨‍🏫  eu sou aluna do _Julio_
 - 👯 Eu edito com companhia  `R,M`
-- 😴 Eu sou ótima quando não tô dormindo
+- 😴 Eu sou ótima (quando não tô dormindo)
 - 🌙 Vivo no mundo da Lua
 - 📫 Você pode me encontrar nesse Email: [pinto.diovana@escola.pr.gov.br](https://mail.google.com/mail/u/1/#inbox)
-- 😄 Pronouns: ...
+- 🌠 As estrelas me prendem
 - ⚡ Fun fact: ...
 `#0969DA`
