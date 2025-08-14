@@ -9,5 +9,4 @@
 - 🌙 Vivo no mundo da Lua
 - 📫 Você pode me encontrar nesse Email: [pinto.diovana@escola.pr.gov.br](https://mail.google.com/mail/u/1/#inbox)
 - 🌠 As estrelas me prendem
-- ⚡ Fun fact: ...
-`#0969DA`
+- 👽 _`gosto de desenhar e amo escrever`_
