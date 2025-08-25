@@ -10,3 +10,4 @@
 - 📫 Você pode me encontrar nesse Email: [pinto.diovana@escola.pr.gov.br](https://mail.google.com/mail/u/1/#inbox)
 - 🌠 As estrelas me prendem
 - 👽 _`gosto de desenhar e amo escrever`_
+<img width="287" height="498" alt="image" src="https://github.com/user-attachments/assets/32d8ed73-248b-4528-987b-64584f472b6f" />
